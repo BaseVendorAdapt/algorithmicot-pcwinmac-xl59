@@ -1,4 +1,4 @@
-# 
+# Personnalisé algorithmic trading bot outils pour Mac OS | Avancé algorithmic trading bot outils pour PC Windows. Avec signaux d'inversion et détection de rupture — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
